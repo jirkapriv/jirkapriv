@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning java, js
 - 🤔 I’m looking for help with mental helth....
 - 💬 Ask me about mathematical problem :))))
-- 😄 Pronouns: pineapple/it
+- 😄 Pronouns: combat helicopter/it
 - ⚡ Fun fact: pineapples are so good
 
 <h3 align="left">Connect with me:</h3>
