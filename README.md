@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with mental helth....
 - 💬 Ask me about mathematical problem :))))
 - 😄 Pronouns: combat helicopter/it
-- ⚡ Fun fact: pineapples are so good
+- ⚡ Fun fact: math + meth = fun
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
